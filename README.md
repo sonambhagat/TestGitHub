@@ -1,1 +1,1 @@
-indetail tutorial
+HELLO SONAM:indetail tutorial
